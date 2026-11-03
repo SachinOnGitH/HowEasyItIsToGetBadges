@@ -1,1 +1,1 @@
-# HowEasyItIsToGetBadges!
+# HowEasyItIsToGetBadges
